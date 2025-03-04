@@ -3,7 +3,7 @@
 <h1 align="center"> 𝐊𝐄𝐈𝐓𝐇-𝐌𝐃 </h1>
 
  
-<h1 align="center"> Survival is winning frankline everything else is bullshit,fairy tales spun by people afraid to look life in the eye,do whatever it takes kid ,,survive 😏🙏
+<h1 align="center"> CYBER DINU MD MULTI DEVICE WHATSAPP BOT DEVELOPD BY CYBER DINU ID 💀💥
 </h1>
 
 
@@ -25,7 +25,7 @@
 
   
 
-<a href="https://github.com/keithkeizzah/KEITH-MD/fork"><img src="https://img.shields.io/badge/CLICK%20HERE-purple" alt="FORK KEITH" width="150"></a>
+<a href="https://github.com/BLACKY-X-MD/CYBER-DINU-MD-V1/fork"><img src="https://img.shields.io/badge/CLICK%20HERE-purple" alt="FORK KEITH" width="150"></a>
 
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
