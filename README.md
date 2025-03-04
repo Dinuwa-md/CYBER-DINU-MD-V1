@@ -8,7 +8,7 @@
 
 
 
-  <a href="https://ibb.co/N6NMDtn"><img src="https://i.imgur.com/XlQIFIF.jpeg" alt="01" border="0" /></a>                     
+  <a href="https://ibb.co/N6NMDtn"><img src="https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg" alt="01" border="0" /></a>                     
 <a><img src='https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg'/></a>
  
 
@@ -28,8 +28,8 @@
 <a href="https://github.com/BLACKY-X-MD/CYBER-DINU-MD-V1/fork"><img src="https://img.shields.io/badge/CLICK%20HERE-purple" alt="FORK KEITH" width="150"></a>
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><img src='https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg'/></a>
+<a><img src='https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg'/></a>
  <h1 align="center">  𝐆𝐄𝐓 𝐘𝐎𝐔𝐑 𝐒𝐄𝐒𝐒𝐈𝐎𝐍 </h1>
   <a href="https://keithmd-l4qc.onrender.com/pair"><img src="https://img.shields.io/badge/Pair%20session%20code-white" alt="𝐏𝐚𝐢𝐫 𝐬𝐞𝐬𝐬𝐢𝐨𝐧 𝐜𝐨𝐝𝐞" width="300"></a>
 
