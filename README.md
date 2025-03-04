@@ -6,9 +6,6 @@
 </h1>
 
 
-
-  <a href="https://ibb.co/N6NMDtn"><img src="https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg" alt="01" border="0" /></a>                     
-<a><img src='https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg'/></a>
  
 
 <details>
