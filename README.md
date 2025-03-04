@@ -1,5 +1,4 @@
 
-<a><img src='https://i.ibb.co/VYpSBknD/db2841a838abbf9b.jpg'/></a>
 <h1 align="center"> 𝐂𝐘𝐁𝐄𝐑-𝐃𝐈𝐍𝐔-𝐌𝐃 </h1>
 
  
@@ -42,8 +41,6 @@
 
 <br>
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
  
 
 **𝗛𝗢𝗦𝗧 𝗢𝗡 𝗗𝗜𝗦𝗖𝗢𝗥𝗗**
