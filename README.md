@@ -1,6 +1,6 @@
 
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<h1 align="center"> 𝐊𝐄𝐈𝐓𝐇-𝐌𝐃 </h1>
+<h1 align="center"> 𝐂𝐘𝐁𝐄𝐑-𝐃𝐈𝐍𝐔-𝐌𝐃 </h1>
 
  
 <h1 align="center"> CYBER DINU MD MULTI DEVICE WHATSAPP BOT DEVELOPD BY CYBER DINU ID 💀💥
